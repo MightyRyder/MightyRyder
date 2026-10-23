@@ -2,8 +2,8 @@
 
 I code sometimes
 
-Contact me w/ Discord @ https://discord.com/users/826588811236474880
-Follow me w/ bsky @ https://bsky.app/profile/mightyryder.bsky.social
+Contact me w/ Discord @ https://discord.com/users/826588811236474880\
+Follow me w/ bsky @ https://bsky.app/profile/mightyryder.bsky.social\
 Support me w/ Patreon @ https://patreon.com/cw/MightyRyder
 
 <!--
